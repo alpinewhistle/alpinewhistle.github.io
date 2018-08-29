@@ -1,11 +1,11 @@
-Hi there. I’m Stephanie, a project manager from Columbia, SC working (and living) in the great city of ATL. 
+Hi there! 👋
 
-With a degree in biology, I can’t say I planned to be in the position I am today, but I’m grateful, nonetheless. I started my professional career like any other 20-something, searching desperately for a company that would offer me a job even remotely related to my degree. Good thing that didn’t happen. 
+I’m Stephanie, a project manager from South Carolina working and living in Atlanta.
 
-I lucked out and landed a role in the marketing department at a private school in my hometown. There, I was encouraged to explore the worlds of brand-building, communications strategy, and most importantly, project management, the vocation where all my natural inclinations to plan and organize found a home. 
+After graduating with a BS in biology, I started my career like lots of others: searching desperately for an opening remotely related to my degree. Fortunately for future me, that didn’t pan out.
 
-I’ve since had to opportunity to work on in-house and client projects, from print magazines and digital campaigns to websites and mobile apps. I’ve played the roles of strategist, realist, devil’s advocate, and cheerleader, along with the many others that come along with being a project manager. 
+I started in a role in the marketing department of a [private school](https://www.heathwood.org/) in my hometown. There, I was pushed to explore the worlds of brand-building, communications strategy, and most importantly, project management, where my natural tendencies to plan and organize found a home.
 
-There are so many things to love about this job, and while I do get immense satisfaction from checking things off a list, the best part is seeing the amazing things my team can accomplish when we work together to get stuff done. :)
+I’ve since had the opportunity to work on in-house and client projects, from print magazines and digital campaigns to websites and mobile apps. I’ve played the roles of strategist, realist, devil’s advocate, and cheerleader, along with quite a few others that come with being a project manager. There are a lot of things to love about this job, but the best part is seeing the amazing things my team can accomplish when we work together to get stuff done. :)
 
-That’s about it. If you’d like to know more, you can find me on Facebook (rarely), LinkedIn (occasionally), and elsewhere online as alpinewhistle (a totally random but undeniably memorable anagram I’ve adopted). Oh, and you can download my resume here.
+If you’d like to get to know me a little better, you can [download my resume here](https://www.dropbox.com) or [send me an email](mailto:stephewill@gmail.com).
