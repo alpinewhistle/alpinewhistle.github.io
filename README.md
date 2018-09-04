@@ -8,4 +8,4 @@ I started a job in the marketing department of a [private school](https://www.he
 
 I’ve since had the opportunity to work on in-house and client projects, from print magazines and digital campaigns to websites and mobile apps. I’ve played the roles of strategist, realist, devil’s advocate, and cheerleader, along with several others that come with being a project manager. There are so many things to love about this job, and while I do get some satisfaction from checking things off a list, the best part is seeing the amazing things my team can accomplish when we work together to get stuff done.
 
-If you’d like to know a little more about me, you can [download my resume] (https://www.dropbox.com/s/vlie9lcyog72eq9/stephanie_will_resume_090318.pdf?dl=0) or [send me an email](mailto:stephewill@gmail.com). My inbox is always open. :)
+If you’d like to know a little more about me, you can [download my resume](https://www.dropbox.com/s/vlie9lcyog72eq9/stephanie_will_resume_090318.pdf?dl=0) or [send me an email](mailto:stephewill@gmail.com). My inbox is always open. :)
